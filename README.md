@@ -1,1 +1,1 @@
-# mariah-akinbi.github.io
+# mariahakinbi.github.io
